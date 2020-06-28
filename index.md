@@ -10,3 +10,9 @@ The story starts with the founding of the fight clubs, where frustrated men meet
 * brutal
 * arogant
 * loves soap
+
+
+Famous quotes:
+
+> All you have got will someday have you.
+> If we have lost everything we will get the freedom to do everything.
