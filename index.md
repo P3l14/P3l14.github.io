@@ -16,3 +16,8 @@ Famous quotes:
 
 > All you have got will someday have you.
 > If we have lost everything we will get the freedom to do everything.
+
+Picture author: Karsten Brink
+Licencse:CC BY-NC-ND 2.0
+
+<img src="https://live.staticflickr.com/2654/4162019359_e79a970c49_b.jpg" alt="Copy of a copy">
